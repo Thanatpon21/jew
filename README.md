@@ -1,2 +1,0 @@
-# Jewelry-Shop
-# Jewelry-Shop
